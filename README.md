@@ -2,4 +2,4 @@
 
 Alessandro Perim Careta Filho
 
-Lucas de Souza
+Lucas de Souza Lima
